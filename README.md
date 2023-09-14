@@ -2,4 +2,4 @@
 
 V-Power Cheats free credits referral code Hacks add money glitch no deposit - Please note that the damage in the game will be affected by the damage difference. This means that the attack will never be processed at 100% of its listed value, but will fluctuate randomly between 80% and 120%. Another thing to note (to my surprise) is that there is no counterattack mechanism in the game, and there is no opportunity to attack when moving close to enemy units. Bellato's attack uses the bolt damage type, which means he has 20% penetration. Even if Bellat uses 20 pieces of armor to fire at the enemy (causing 6 * (10-20) points of damage), each attack will cause 20% damage, so he will eventually cause 12 points of damage. One last thing: Note that in most of the early days of the game, you will cause killing damage, which means that your killing hit will cause at least twice the damage required to kill the unit. how to get free money on vpower 2023
 
-[get now](https://fengmod.top/v-power/)
+[get now](https://peatix.com/user/14071195/view)
